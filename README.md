@@ -1,6 +1,6 @@
 - 👋 Hi, we're @Ephyrian NFO, a cross-chain Web3aaS network of dApps. *Read our whitepaper on LinkedIn to know more about NFOs*
 - 👀 we're interested in Web3 and AI!
-- 📫 You can contact us through linkedIn, link in bio.
+- 📫 You can contact us through LinkedIn, link in bio.
 - 😄 Pronouns: NEW/ERA
 - ⚡ Fun fact: 👽
 
